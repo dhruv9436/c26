@@ -1,0 +1,1 @@
+First take a container then pour some water then take maggi and put it in the container then put the maggi  masla in container then let the water dry . After 5 min your magggi is ready.   
